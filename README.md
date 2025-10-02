@@ -1,1 +1,2 @@
-# individualistic-love
+# Individualistic Love
+Lionel Milliard, dernier animal divin sur terre et admiré de tous, se retrouve lié par la magie à Héna, employée de l’auberge d'un village, suite à une maladresse de la jeune femme. Héna, qui semble insensible au charme de Lionel, accepte de l’accompagner dans un long voyage pour se libérer de ce sort.
